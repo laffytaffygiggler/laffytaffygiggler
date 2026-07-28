@@ -1,9 +1,9 @@
-<img width="498" height="371" alt="17845082970025185660650007328300" src="https://github.com/user-attachments/assets/2357bf0c-960e-4c89-a5f7-115874671c86" />
+<img width="498" height="332" alt="17852792757702987586853195300228" src="https://github.com/user-attachments/assets/aceced94-130b-4287-bced-111494a63556" />
 
 
 ***
 
-- call me **oppression**, **wellcheers**, apocalypse bird, tumored/tb,  or radical
+- call me **oppression**, **wellcheers**, **radical**, **army in pink**, apocalypse bird or tumored/tb.
 - STRICTLY **it/its** pronouns. don't like it? block me. **DO NOT REFER TO ME WITH FEMALE TERMS. ONLY MASCULINE/NEUTRAL. I'M AGENDER & TRANSMASC.**
 - i say slurs sometimes. **ALL** the slurs i say i can reclaim.
 - i'm disabled, both physically and mentally, please be patient with me
