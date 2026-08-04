@@ -1,4 +1,4 @@
-<img width="498" height="332" alt="17852792757702987586853195300228" src="https://github.com/user-attachments/assets/aceced94-130b-4287-bced-111494a63556" />
+[![Narrator-weapon.png](https://i.postimg.cc/q7dZvHG3/Narrator-weapon.png)](https://postimg.cc/dh495Xps)
 
 
 ***
