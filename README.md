@@ -1,17 +1,18 @@
-[![Narrator-weapon.png](https://i.postimg.cc/q7dZvHG3/Narrator-weapon.png)](https://postimg.cc/dh495Xps)
+<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/842461e2-e3d7-4cdc-846a-649efa7232b2" />
+
 
 
 ***
 
-- call me **oppression**, **wellcheers**, **radical**, **army in pink**, apocalypse bird or tumored/tb.
+- call me **wellcheers**, **oppression**, **radical**, **army in pink**, apocalypse bird or tumored/tb.
 - STRICTLY **it/its** pronouns. don't like it? block me. **DO NOT REFER TO ME WITH FEMALE TERMS. ONLY MASCULINE/NEUTRAL. I'M AGENDER & TRANSMASC.**
-- i also alternate between **i/me** and **we/us**.
+- i also alternate between **i/me** and **we/us**, occasionally.
 - i say slurs sometimes. **ALL** the slurs i say i can reclaim.
-- i'm disabled, both physically and mentally, please be patient with me
+- i'm disabled, both physically and mentally, please be patient with me!!
 - i make sexual jokes, if you don't like it lmk
 - i'm an oppression (sol's rng) & opened can of wellcheers (lobotomy corporation) **fullkin**. dni if you talk shit about fictionkins or alterhumans i'm literally one.
 - dni if you revolve your entire personality around being a proshipper/antishipper. shipping discourse makes me uncomfortable a lot.
-- i like: the battle bricks, **sol's rng**, **lobotomy corporation**, **tuantu's lobotomization branches**, **animal hospital**, **color cruelty/blud obby**, enfosi, raigforce 1 & 2, the "tsunami game", adopt me, **pokemon**, depth spelunking & **minus elevation**.
+- i like: the battle bricks, **sol's rng**, **lobotomy corporation**, **limbus company**, **tuantu's lobotomization branches**, **animal hospital**, **color cruelty/blud obby**, enfosi, raigforce 1 & 2, the "tsunami game", adopt me, **pokemon**, depth spelunking & **minus elevation**.
 
 ***
 [![Tumblr-l-1258681259325338.gif](https://i.postimg.cc/BQRKFgwt/Tumblr-l-1258681259325338.gif)](https://postimg.cc/zVSvZnN1)[![Tumblr-l-1264134606116247.png](https://i.postimg.cc/9QTqY76F/Tumblr-l-1264134606116247.png)](https://postimg.cc/RWSFMNCj)[![Tumblr-l-1263789392433941.gif](https://i.postimg.cc/G238RSH0/Tumblr-l-1263789392433941.gif)](https://postimg.cc/PLcrzyWK)[![Tumblr-l-1264175842348949.png](https://i.postimg.cc/nrCXjjKt/Tumblr-l-1264175842348949.png)](https://postimg.cc/MfJ6gGrs)[![Tumblr-l-75507804033168.webp](https://i.postimg.cc/9Fw4c9Ft/Tumblr-l-75507804033168.webp)](https://postimg.cc/N5YG45X5)[![Tumblr-l-1263715815576559.png](https://i.postimg.cc/hGsv2bpc/Tumblr-l-1263715815576559.png)](https://postimg.cc/mccTD9v5)[![Tumblr-l-1258684061881451.gif](https://i.postimg.cc/mkzr2x4y/Tumblr-l-1258684061881451.gif)](https://postimg.cc/5QJJnR6X)[![Tumblr-l-1264168226465326.jpg](https://i.postimg.cc/QNwtYMg4/Tumblr-l-1264168226465326.jpg)](https://postimg.cc/Jt3MGM2Z)[![Tumblr-l-1263732297162576.gif](https://i.postimg.cc/fTdbGhBC/Tumblr-l-1263732297162576.gif)](https://postimg.cc/YhpkFTcL)[![Tumblr-l-1263719076650217.gif](https://i.postimg.cc/VkBkNWyP/Tumblr-l-1263719076650217.gif)](https://postimg.cc/87cSKWPZ)[![Tumblr-l-1263753794905863.gif](https://i.postimg.cc/gJwwrLHd/Tumblr-l-1263753794905863.gif)](https://postimg.cc/CBgMQ126)[![Tumblr-l-1263831796825248.png](https://i.postimg.cc/mgbtC5y7/Tumblr-l-1263831796825248.png)](https://postimg.cc/RNDSzG80)
